@@ -1,2 +1,2 @@
 
-Personal portfolio and official links page of Md. Mainul Islam (CODEX-M41NUL), independent developer from Bangladesh.
+Personal portfolio and official links page of Md. Mainul Islam (Mainul’s Sandbox), independent developer from Bangladesh.
